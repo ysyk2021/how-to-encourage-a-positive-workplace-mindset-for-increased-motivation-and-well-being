@@ -37,7 +37,7 @@ Airbnb's positive workplace mindset offers an example of how organizations can p
 * Encouraging learning and development opportunities through a dedicated learning and development team and a "skills camp" program.
 * Providing regular feedback and recognition through peer feedback, 360-degree reviews, and an "Idea Awards" program.
 * Creating a supportive work environment that encourages experimentation and risk-taking through a culture of "belonging anywhere," which encourages employees to embody the company's mission.
-* Promoting open communication and collaboration between colleagues through cross-functional teams and "Lunch \& Learn" sessions.
+* Promoting open communication and collaboration between colleagues through cross-functional teams and "Lunch & Learn" sessions.
 * Encouraging self-reflection and self-awareness through mindfulness meditation classes and a focus on work-life balance.
 
 Conclusion
