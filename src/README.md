@@ -1,4 +1,4 @@
-# Introduction
+
 
 The modern work environment is fast-paced, demanding, and often stressful. Many employees struggle with maintaining motivation and experiencing a sense of fulfillment in their jobs. However, research has shown that a positive mindset can significantly influence both individual and organizational outcomes, leading to increased motivation and overall well-being.
 
@@ -21,3 +21,7 @@ Each chapter will provide practical tips, exercises, and real-life examples to i
 Whether you are an employee, manager, or business owner, this book is designed to empower you with the knowledge and tools needed to foster a positive mindset in your workplace. So, let's embark on this journey together and discover the transformative power of positivity in our professional lives.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

@@ -1,4 +1,3 @@
-# Tracking Progress and Celebrating Successes
 
 In this chapter, we will explore the importance of tracking progress and celebrating successes in creating a positive workplace mindset. By implementing effective tracking systems and acknowledging achievements, organizations can boost motivation, well-being, and overall productivity.
 

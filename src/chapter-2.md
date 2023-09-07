@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Power of Mindset
-=============================================
 
 ## Definition of Mindset and Its Impact on Workplace Performance
 

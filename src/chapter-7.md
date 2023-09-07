@@ -1,5 +1,3 @@
-Chapter 7: Nurturing Employee Well-Being
-========================================
 
 Nurturing employee well-being is crucial for promoting a positive workplace mindset. In this chapter, we will discuss the importance of employee well-being in promoting a positive workplace mindset and strategies for nurturing it.
 

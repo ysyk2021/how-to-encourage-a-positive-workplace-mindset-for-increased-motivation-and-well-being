@@ -1,5 +1,3 @@
-Overview of Self-Awareness and Resilience in the Workplace
-==============================================================================================================
 
 Promoting self-awareness and resilience is essential for creating a positive workplace mindset that increases motivation and well-being. In this chapter, we will explore the importance of self-awareness and resilience in the workplace.
 

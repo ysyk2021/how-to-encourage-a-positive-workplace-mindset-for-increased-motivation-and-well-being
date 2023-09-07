@@ -1,5 +1,3 @@
-Benefits of a Positive Workplace Mindset for Employees and the Organization
-==========================================================================================================================
 
 Understanding the power of mindset is essential for creating a positive workplace environment that increases motivation and well-being. In this chapter, we will explore the benefits of a positive workplace mindset for employees and the organization.
 

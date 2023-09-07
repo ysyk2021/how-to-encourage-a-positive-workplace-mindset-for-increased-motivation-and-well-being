@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Creating a Roadmap for Promoting a Positive Workplace Mindset for Increased Motivation and Well-being
 -----------------------------------------------------------------------------------------------------

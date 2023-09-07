@@ -1,5 +1,3 @@
-Strategies for Overcoming These Obstacles
-==========================================================================================================
 
 Promoting a positive workplace mindset can face obstacles along the way. In this chapter, we will discuss common obstacles to creating a positive workplace mindset and strategies for overcoming them.
 

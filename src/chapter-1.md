@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 A positive workplace mindset is crucial for promoting employee motivation and well-being. In this book, we will explore strategies for encouraging a positive workplace mindset to create a supportive work environment that fosters productivity, engagement, and employee satisfaction.
 

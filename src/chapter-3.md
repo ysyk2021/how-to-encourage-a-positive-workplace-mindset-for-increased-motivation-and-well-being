@@ -1,5 +1,3 @@
-Chapter 3: Cultivating a Growth Mindset
-=======================================
 
 Importance of a Growth Mindset in the Workplace
 -----------------------------------------------

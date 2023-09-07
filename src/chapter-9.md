@@ -1,4 +1,3 @@
-# Chapter 9: Overcoming Obstacles to a Positive Workplace Mindset
 
 In this chapter, we will explore the common obstacles that individuals face when trying to maintain a positive mindset in the workplace. We will also provide strategies and techniques for overcoming these obstacles, allowing employees to cultivate a more motivated and well-being-oriented mindset.
 

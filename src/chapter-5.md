@@ -1,5 +1,3 @@
-Chapter 5: Encouraging a Supportive Work Environment
-====================================================
 
 Encouraging a supportive work environment is crucial for promoting a positive workplace mindset. In this chapter, we will discuss the importance of a supportive work environment in promoting a positive mindset and strategies for encouraging one.
 

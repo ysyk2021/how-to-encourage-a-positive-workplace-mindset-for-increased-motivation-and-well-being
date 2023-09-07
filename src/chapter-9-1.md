@@ -1,4 +1,3 @@
-# Common Obstacles to a Positive Workplace Mindset
 
 In order to foster a positive workplace mindset, it is essential to understand and address the common obstacles that can hinder motivation and well-being in the workplace. By recognizing and addressing these challenges, organizations can create an environment that promotes positivity and enhances employee engagement.
 

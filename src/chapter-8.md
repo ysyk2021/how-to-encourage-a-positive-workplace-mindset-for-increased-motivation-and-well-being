@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Positive Mindset into Company Policies and Practices
-=============================================================================
 
 Incorporating a positive mindset into company policies and practices is crucial for promoting a positive workplace culture. In this chapter, we will discuss the importance of incorporating a positive mindset into company policies and practices and techniques for doing so.
 
