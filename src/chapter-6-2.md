@@ -1,5 +1,4 @@
-Chapter: Techniques for Fostering Positive Relationships and Communication
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

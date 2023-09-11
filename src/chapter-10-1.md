@@ -1,5 +1,4 @@
-Chapter: Creating a Roadmap for Promoting a Positive Workplace Mindset for Increased Motivation and Well-being
-==============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
